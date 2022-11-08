@@ -2,7 +2,7 @@ little ghithub for ponytown lmao
 
 
 
-hey im B3 BF/  Bartholomew  Bartholomew  Bartholomew/
+hey im B3 BF/  Bartholomew  Bartholomew  Bartholomew/ Spooku
 
 im a trans intersexual man!!!!!!! (boyussy4ever ong)
 [i go by he/him]
