@@ -1,12 +1,15 @@
- 𝚜𝚙𝚘𝚘𝚔𝚢/b3 ૮꒰◞ ⸝⸝ ◟꒱ა 
- trans man 
- [he/him]
- 
- im mostly on ponytown somewhere hanging with my friends
+ ꜱᴘᴏᴏᴋʏ/ʙ3 ૮꒰◞ ⸝⸝ ◟꒱ა 
+ >ᴛʀᴀɴꜱ ᴍᴀɴ ʜᴇ/ʜɪᴍ
  
  
+ >pls int if you like the things i like lol
  
- pls int if you like the things i like imao
+ >i have a hypersexual disorder watch out for that !
+
+
+  > fnf fans/sky fans dni srs
+ 
+ 
  
  
  
